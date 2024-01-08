@@ -17,3 +17,7 @@ Part B - Advanced Session
 Total Duration                       --->            165 minutes
 
 All the best !!!!!
+
+SAMPLE QUESTIONS:Consisting of 3 sample questions from each vertical
+1.Find the H.M of 9 and 64
+2.Riley leaned ____ me and gave me an awkward smile expressing her dismissal.
